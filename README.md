@@ -1,2 +1,0 @@
-# Fahrzeuglackierer-Procolor
-Lernaap
